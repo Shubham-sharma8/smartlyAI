@@ -11,4 +11,4 @@ As you navigate through our website, you'll discover a treasure trove of informa
 
 Ready to take the plunge into the world of smart living? Browse our collection, customize your home automation setup, and experience the convenience, comfort, and security that comes with having complete control over your home.
 
-Join the revolution of intelligent living at [Your Website Name]. Your smart home journey starts here.
+Join the revolution of intelligent living at SmartLY.AI. Your smart home journey starts here.
